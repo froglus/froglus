@@ -1,5 +1,5 @@
 hello i am Froglus a game dev/ artist/ composer 
-i like making games that are with phonk or jazz
+i like making games that are with jazz
 im looking forward to making more games
 
 
